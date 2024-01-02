@@ -30,4 +30,4 @@
 
 ### Support or Contact:
 
-Having trouble with Pages? Feel free to send me a mail at yashagarwal94144@gmail.com
+Having trouble with Pages? Feel free to send me a mail!
